@@ -1,0 +1,6 @@
+- ew are you a wilbur skin! hes an abuser!
+- I AGREE WITH YOU! wilbur is an abuser
+- this is a reclaim oc of c!wilbur / q!wilbur
+- i dont support him any further as a cc but i still like his canon characters
+- do not harass me, i am not wilbur, neither am i an abuser.
+- thank you!
